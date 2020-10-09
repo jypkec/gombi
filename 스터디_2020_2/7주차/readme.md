@@ -1,2 +1,1 @@
-tempd
-#include<Stdohtcn,nxbbkwbiubsf
+7주차입니다.
